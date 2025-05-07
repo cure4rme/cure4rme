@@ -3,7 +3,8 @@
 <p align="center"><img src=https://i.imgur.com/tJKeGbU.jpeg width=300
 
   
-<p align="center"> Feel free to interact! I'm kinda awkward though (why does this text refuse to go below the image)
+<p align="center"> Feel free to interact! I'm kinda awkward though
+<p align="center"> (why does this text refuse to go below the image)
 
 <p align="center"> I tend to be afk sometimes, or just making a pony, so try to w2i!
   
