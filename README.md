@@ -14,6 +14,8 @@
 
 <p align="center"> I typically sit in an area for whatever fandom I'm into atm
 
+<p align="center"> Deathnote people where u at
+
 <p align="center"><img src="https://i.imgur.com/DoRFB81.png" width="200">
 
 <p align="center"> Will work on Rentry and possibly Strawpage later
