@@ -15,6 +15,6 @@
 
 <p align="center"> Deathnote people where u at
   
-<p align="center"> Will work on Rentry and possibly Strawpage later
+<p align="center"> Will work on Rentry later
 
 
